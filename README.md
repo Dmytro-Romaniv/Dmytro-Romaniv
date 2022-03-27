@@ -1,1 +1,1 @@
-### Hello there! 👋
+### Hello, friend.
